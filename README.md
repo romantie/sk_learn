@@ -1,2 +1,1 @@
-# hello-world
-This is the first about using the github .
+this is the first using github ,now ,i am so exciting @@@!!!!
